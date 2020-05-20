@@ -15,4 +15,4 @@ shit. POLICE FOLLOW ME
 .
 .
 .
-do you see my profile? There could be important info, like most cute cat "dari"'s photo....
+~~do you see my profile? There could be important info, like most cute cat "dari"'s photo....~~
